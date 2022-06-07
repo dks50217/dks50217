@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **online game plugin**
 
-- 👯 I’m looking to collaborate on **IE Tool**
+- 👯 I’m looking to collaborate on **Institute of Industrial Engineering T**
 
 - 💬 Ask me about **.NET,vue**
 
