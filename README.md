@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **dks50217@gmail.com**
 
-- ⚡ Fun fact **trance is life**
+- ⚡ **trance is life**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
